@@ -1,4 +1,4 @@
-A little over a year ago, I was with my brother on a 40-day trip around the world. And near the end of that trip, we found ourselves in Cairo, Egypt, in the middle of Tahrir Square.
+A little over a year ago, I was with my brother on a [40-day trip around the world](http://micahredding.com/blog/series/around-world-40-days). And near the end of that trip, we found ourselves in Cairo, Egypt, in the middle of Tahrir Square.
 
 I didn't, and don't, know much about Egyptian politics. But we were there in the aftermath of their revolution, after their first democratic election *ever* had been held, and the results had come back so close, there had to be a recount.
 
